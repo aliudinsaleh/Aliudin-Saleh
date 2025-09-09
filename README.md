@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aliudin-Saleh
-- 👀 I’m interested in Cars,proggraming, Motorcycles, Planes, and tech
+- 👀 I’m interested in Cars, programming, Motorcycles, Planes, and tech
 - 🌱 I’m currently learning Python🐍
 - 📫 How to reach me Discord: .aliudin.
 - 😄 Pronouns: He/Him
